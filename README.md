@@ -8,7 +8,7 @@ Typically the key ingredients for basic biltong are;
 2. Vinegar
 3. Salt
 4. Pepper
-5. Corriander Seeds - This spice is primaraily responsible for the unique flavour of biltong. 
+5. Corriander Seeds - This spice is primaraily responsible for the unique flavour of biltong. Corriander is also known as cilantro, Chinese parsley or dhania.
 
 Commercial drying cabinets are available from a variety of suppliers but home made ones are relatively easy and enjoyable to make and can range from a simple carboard box to some fairly elaborate constructions.
 
