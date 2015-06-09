@@ -16,3 +16,4 @@ I started making my own biltong about 10 years ago and in that time have tried a
 
 I would recommend that you start small, especially with the amount of biltong that you actually prepare in your first few attempts.  It is quite common to make mistakes in the beginning and the last thing you want is to prepare a large batch of biltong only to discover that it is far too salty to eat and then throwing it all in the trash!
 
+Biltong is delicious, and i hope this helps you to get started or even just provides you with some new ideas or spice combinations to try.  Either way, please submit your comments, your own recipes and box deisgns to help others discover and enjoy a wide variety of biltong!
